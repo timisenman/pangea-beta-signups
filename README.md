@@ -1,1 +1,1 @@
-# pangea-beta-signups
+# PANGEA, BITCH
